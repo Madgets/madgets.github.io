@@ -1,1 +1,1 @@
-# madgets.github.io
+There is nothing funny here.
